@@ -1,2 +1,2 @@
-README.md1Tiktok.com # ANDERSON-
+Tiktok.com # ANDERSON-
 Botik start 121
